@@ -1,4 +1,4 @@
-<img width="800" height="450" alt="Minecraft_26 2-Singleplayer2026-08-0914-58-41online-video-cutter com-ezgif com-speed" src="https://github.com/user-attachments/assets/6be99d6b-3a6c-4779-a87c-b50519318504" /># Firework Arrows!
+# Firework Arrows!
 
 <img width="800" height="450" alt="Minecraft_26 2-Singleplayer2026-08-0914-58-41online-video-cutter com-ezgif com-speed" src="https://github.com/user-attachments/assets/7d408613-7281-4ca8-bfc6-a56d414eef1f" />
 
